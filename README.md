@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning study
 - 💞️ I’m looking to collaborate on hackers
 - 📫 How to reach me on cyber world 
-- 😄 Pronouns: ...
+- 😄 hackers contact me 
 - ⚡ Fun fact: cool
 
 <!---
